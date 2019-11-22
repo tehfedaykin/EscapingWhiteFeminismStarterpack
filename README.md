@@ -1,4 +1,4 @@
-# EscapingWhiteFeminismStarterpack
+# Escaping White Feminism Starter Pack
 
 Resources compiled to help educate and further diversity & inclusion. 
 
