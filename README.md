@@ -28,7 +28,7 @@ Yes, but you can start small. A really powerful way to change your perspective a
 ## Read these books: 
 
 - [So You Want to Talk About Race](https://amazon.com/You-Want-Talk-About-Race/dp/1580058825/ref=sr_1_2?keywords=so+you+want+to+talk+about+race&qid=1574384071&sr=8-2)
-- [White Fragility](https://amazon.com/White-Fragility-People-About-Racism/dp/0807047414/ref=sr_1_1_sspa?keywords=so+you+want+to+talk+about+race&qid=1574384071&sr=8-1-spons&psc=1spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEzTlM5TkJQRDJQOEFIJmVuY3J5cHRlZElkPUEwOTU3MzM0SzZYRVIxMFlHNzYzJmVuY3J5cHRlZEFkSWQ9QTA0MTEzNzFGSlZJQTE0RkJGMzEmd2lkZ2V0TmFtZT1zcF9hdGYmYWN0aW9uPWNsaWNrUmVkaXJlY3QmZG9Ob3RMb2dDbGljaz10cnVl)
+- [Seeing White](https://www.sceneonradio.org/seeing-white/)
 - [Why I'm No Longer Talking to White People About Race](https://amazon.com/Longer-Talking-White-People-About/dp/1635572959/ref=sr_1_15?keywords=so+you+want+to+talk+about+race&qid=1574384137&sr=8-15)
 
 ## Check out these incident writeups
