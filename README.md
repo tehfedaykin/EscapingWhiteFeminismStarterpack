@@ -18,7 +18,7 @@ Yes, but you can start small. A really powerful way to change your perspective a
 - [Aisha Blake](https://twitter.com/AishaBlake)
 - [Kim Crayton](https://twitter.com/KimCrayton1)
 - [Kristen Seversky](https://twitter.com/KR1573N)
-- [Cher Scarlett](https://twitter.com/CHERdotdev)
+- [Cher Scarlett](https://twitter.com/cherthedev)
 - [Pete Holiday](https://twitter.com/toomuchpete)
 - [Kelsey Hightower](https://twitter.com/kelseyhightower)
 - [Crystal Martin](https://twitter.com/codermeow)
