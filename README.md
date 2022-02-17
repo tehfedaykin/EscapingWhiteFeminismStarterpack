@@ -73,6 +73,12 @@ Tone Policing is a personal attack and antidebate tactic based on criticizing a 
 
 [Racism 101: Tone Policing](https://medium.com/@tessintrovert/racism-101-tone-policing-92481c044b6a)
 
+### TERF
+
+Trans-exclusionary radical feminist. 
+
+Harmful for promoting Anti-transgender agendas. 
+
 ### Emotional Labor
 
 A term coined by the sociologist Arlie Hochschild to describe the hidden emotional work service industry workers are expected to perform to positively influence the experience of a customer or colleague. In other words, the service worker must constantly manage their emotions—either by suppressing them, showing them, or redefining them—to achieve the results they want and to get the job done.
